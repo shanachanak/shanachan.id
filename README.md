@@ -1,1 +1,1 @@
-# shanachan.id
+# shanachan.github.oi
